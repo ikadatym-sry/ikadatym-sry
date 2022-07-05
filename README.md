@@ -8,4 +8,5 @@
 - 📫 How to reach me: Nothing
 - 😄 Pronouns: **Nothing**
 - ⚡ Fun fact: I can move my body
-- I'm still do experimenting and practicing. I help my idiot friend to do the code only. my many repos are private repo. English is my 2nd language
+- I'm still do experimenting and practicing. I help my idiot friend to do the code only. my many repos are private repo.
+- Speak Thai, English and Japanese JLPT N4 level.
